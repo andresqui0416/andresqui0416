@@ -58,7 +58,7 @@ From working in fast-paced startups to contributing at large-scale platforms lik
 ## 📫 Let's Connect
 
 - [LinkedIn](https://www.linkedin.com/in/andres-quijada-9352b060)
-- Email: [andres.quijada.0416@gmail.com](mailto:andres.quijada.0416@gmail.com)
+- Email: [andres.0416@proton.me](mailto:andres.0416@proton.me)
 
 ---
 
